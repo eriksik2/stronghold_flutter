@@ -1,2 +1,2 @@
 # Stronghold
-For a strong household.
+For a stronger household.
